@@ -1,5 +1,5 @@
 ### Hi there 👋
-# Philosophy is just thinking until you're depressed or dellusional
+# Philosophy is just thinking until you're either sad or dellusional
 <!--
 **da45da/da45da** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
