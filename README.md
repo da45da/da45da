@@ -1,5 +1,5 @@
 ### Hi there 👋
-# Philosophy is just thinking until you're either sad or dellusional
+# When considering infinites, unlikely is just certainty waiting it's turn.
 <!--
 **da45da/da45da** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
